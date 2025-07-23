@@ -1,16 +1,21 @@
-## Hi there 👋
+![6958def4af9410709b60cf76c04b1b43](https://github.com/user-attachments/assets/2bd2e75d-8371-4b18-80ee-ecadd40e199c)
 
-<!--
-**PH4IN0N/PH4IN0N** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+                                   𝅄    ࿙࿚  ︶ ⠀ ♱⠀  ︶  ࿙࿚    𝅄
+                                   
+                                    ﹕　➜﹐ρнαιdєι єηтнυsιαsт
+                                     ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+
+                                    　    𐐪 sσcιαl αηχιєтy  ₊  ◞
+                                       
+                         Ი︵𐑼  αηy ιηт ιs ƒιηє! αs lσηg αs ιтs ησт яυdє ⠀︵⠀ ⠀Ⳋ𝅄
+
+                                           ‿︵˓ ʚ♡ɞ ˓︵‿ 
+                                       
+![239b205f8d6df26fe94ee0f6dfba4152 2](https://github.com/user-attachments/assets/baf2348b-58aa-4b49-91a9-56bf539aec14)
+
+<img width="1280" height="168" alt="IMG-9220" src="https://github.com/user-attachments/assets/2afb2b9f-0b55-4d28-971c-358d9d36fe9a" />
+       
+                                
