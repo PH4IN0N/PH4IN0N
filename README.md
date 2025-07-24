@@ -1,3 +1,5 @@
+                               ﹐ ﹙ ιт's α dαтє ... мydєιмσs. ﹚  ◞
+
 ![6958def4af9410709b60cf76c04b1b43](https://github.com/user-attachments/assets/2bd2e75d-8371-4b18-80ee-ecadd40e199c)
 
 
