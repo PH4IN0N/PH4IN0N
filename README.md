@@ -21,3 +21,4 @@
 <img width="1280" height="168" alt="IMG-9220" src="https://github.com/user-attachments/assets/2afb2b9f-0b55-4d28-971c-358d9d36fe9a" />
        
                                 
+<img width="295" height="250" alt="aw cuties" src="https://github.com/user-attachments/assets/b2482f86-5e25-496b-a4f2-842c13da4b7f" />
