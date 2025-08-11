@@ -1,4 +1,4 @@
-<img width="190" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" /> ![526ab5f897fe33f195ca51258bf7c19b](https://github.com/user-attachments/assets/43ea8d35-c3ef-49f4-885d-64d607f38c6b)
+<img width="180" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" /> ![526ab5f897fe33f195ca51258bf7c19b](https://github.com/user-attachments/assets/43ea8d35-c3ef-49f4-885d-64d607f38c6b)
 
     
                                          
@@ -52,7 +52,7 @@ https://github.com/user-attachments/assets/a0fffee4-0b56-4847-a5ea-0d4e8309ff4b
 <img width="120" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" /><img width="617" height="29" alt="loops" src="https://github.com/user-attachments/assets/e18a353e-27f3-40f4-b9cb-33b494b0e267" />
 
 
-<img width="150" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-shattering](https://github.com/user-attachments/assets/79ed599b-0eb8-4498-a0c2-ad064356aca3)
+<img width="190" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-shattering](https://github.com/user-attachments/assets/79ed599b-0eb8-4498-a0c2-ad064356aca3)
 
 
 
