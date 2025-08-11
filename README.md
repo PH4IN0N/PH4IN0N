@@ -2,16 +2,16 @@
 <img width="2000" height="1000" alt="who am i" src="https://github.com/user-attachments/assets/f98879a5-bf69-4be6-839f-04e468285bb2" />
 
 
-                                                                ▉▉▉▉▉
-                                                          ―――――――――――――――――――――
-                                                              𝒯𝒽𝑒 𝒟𝑒𝓁𝒾𝓋𝑒𝓇𝑒𝓇
+                                                              ▉▉▉▉▉
+                                                        ―――――――――――――――――――――
+                                                            𝒯𝒽𝑒 𝒟𝑒𝓁𝒾𝓋𝑒𝓇𝑒𝓇
 
 
 
 
 <img width="1200" height="321" alt="the deliverer png" src="https://github.com/user-attachments/assets/6e7c5dfe-bde6-4af1-a570-af1a2aa22bb7" />
 
-                                                            🇹​​🇭​​🇪​ "​🇳​​🇦​​🇲​​🇪​​🇱​​🇪​​🇸​​🇸​​" ​🇭​​🇪​​🇷​​🇴​                                                            
+                                                          🇹​​🇭​​🇪​ "​🇳​​🇦​​🇲​​🇪​​🇱​​🇪​​🇸​​🇸​​" ​🇭​​🇪​​🇷​​🇴​                                                            
 
                                                           
 
