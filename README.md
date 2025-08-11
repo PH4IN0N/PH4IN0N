@@ -52,7 +52,7 @@ https://github.com/user-attachments/assets/a0fffee4-0b56-4847-a5ea-0d4e8309ff4b
 
 
 
-<img width="185" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-character-introduction-phainon-character-trailer](https://github.com/user-attachments/assets/ddc80c04-4052-4008-8a7e-884ad8223cf2)
+<img width="180" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-character-introduction-phainon-character-trailer](https://github.com/user-attachments/assets/ddc80c04-4052-4008-8a7e-884ad8223cf2)
 
 
 
