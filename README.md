@@ -51,7 +51,8 @@ https://github.com/user-attachments/assets/a0fffee4-0b56-4847-a5ea-0d4e8309ff4b
 <img width="120" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" /><img width="617" height="29" alt="loops" src="https://github.com/user-attachments/assets/e18a353e-27f3-40f4-b9cb-33b494b0e267" />
 
 
-<img width="190" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-shattering](https://github.com/user-attachments/assets/79ed599b-0eb8-4498-a0c2-ad064356aca3)
+<img width="190" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />![phainon-character-introduction-phainon-character-trailer](https://github.com/user-attachments/assets/ddc80c04-4052-4008-8a7e-884ad8223cf2)
+
 
 
 
