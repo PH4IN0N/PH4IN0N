@@ -58,7 +58,7 @@ https://github.com/user-attachments/assets/a0fffee4-0b56-4847-a5ea-0d4e8309ff4b
 
 
 
-<img width="150" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />[![Strawpage]<img width="150" height="150" alt="coreflame" src="https://github.com/user-attachments/assets/87e8830f-0c97-459e-8469-ae464055d2d7" />](https://ph4in0n.straw.page/) [![Atabook]<img width="150" height="150" alt="coreflame2" src="https://github.com/user-attachments/assets/b2da1dfe-9c34-4aa0-8b91-3eea770888d1" />
+<img width="150" height="261" alt="white png" src="https://github.com/user-attachments/assets/9fed7375-0b94-4d3c-804e-9f895e83acad" />[![Strawpage]<img width="150" height="150" alt="coreflame" src="https://github.com/user-attachments/assets/87e8830f-0c97-459e-8469-ae464055d2d7" />](https://editing-this.straw.page/) [![Atabook]<img width="150" height="150" alt="coreflame2" src="https://github.com/user-attachments/assets/b2da1dfe-9c34-4aa0-8b91-3eea770888d1" />
 ](https://sxcy.atabook.org/)
 
 
